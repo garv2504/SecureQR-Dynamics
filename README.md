@@ -27,6 +27,9 @@ SecureQR Dynamics places a strong emphasis on building consumer confidence in th
 ## Revolutionizing Supply Chain Management
 
 SecureQR Dynamics is not just a technological innovation; it's a paradigm shift in supply chain management. By revolutionizing the way products are tracked and verified, we set new standards for transparency and authenticity in the industry.
+![1](https://github.com/garv2504/SecureQR-Dynamics/assets/156910145/2b1f5656-c3eb-484f-8bea-737b0a132de4)
+![2](https://github.com/garv2504/SecureQR-Dynamics/assets/156910145/add9a1e6-6fd2-45e7-91c7-43d0b4470dfd)
+
 
 ## Commitment to Genuine Products
 
